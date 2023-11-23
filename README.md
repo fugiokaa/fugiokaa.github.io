@@ -1,0 +1,1 @@
+# fugiokaa.github.io
